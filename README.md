@@ -1,6 +1,8 @@
 # Copy
 linshifuzhi
 临时复制在线复制，多平台复制粘贴
+wps移动专业版
+
 https://mo.wps.cn/pc-app/office-pro.html
 R8R8P-MTT6F-KLRPM-J7CAB-PJM8C
 7LR67-WTXPA-KLUHV-GEK2E-QW4CK
